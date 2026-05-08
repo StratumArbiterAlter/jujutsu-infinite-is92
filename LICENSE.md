@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with advanced Scripts for jujutsu infinite, the #1 Script. Includes invisibility and esp for unbeatable
 
 
 
